@@ -109,6 +109,6 @@ EL SOFTWARE SE PROPORCIONA "TAL CUAL", SIN GARANTÍA DE NINGÚN TIPO, EXPRESA O
 
 
 📩 Contacto
-📌 LinkedIn: www.linkedin.com/in/henry-jimenez-a9699034a
+📌 LinkedIn: www.linkedin.com/in/henry-jimenez-5970bb295
 
 ¡Diviértete aprendiendo! 🚀
